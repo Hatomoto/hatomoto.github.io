@@ -1,0 +1,1 @@
+# hatomoto.github.io
